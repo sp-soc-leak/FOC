@@ -16,4 +16,4 @@ I DO NOT own any of the material
 
 ## why only 4 topics
 
-for FOC, you will have a few quizzes, an MST and Project. The MST, the ONLY written paper for this test, you will oly need to study these 4 topics. Unfortunately the module on website is no longer open, and i was a little too late when it came to downloading the content. But at the very least you have all the needed content.
+for FOC, you will have a few quizzes, weekly practicals, an MST and Project. The MST, the ONLY written paper for this test, you will oly need to study these 4 topics. Unfortunately the module on website is no longer open, and i was a little too late when it came to downloading the content. But at the very least you have all the needed content.
